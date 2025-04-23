@@ -24,7 +24,57 @@
 ## 今日头条热搜
 
 <!-- BEGIN TOUTIAO -->
-<!-- 最后更新时间 Wed Apr 23 2025 03:14:43 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Wed Apr 23 2025 21:28:24 GMT+0800 (China Standard Time) -->
+1. [中方回应特朗普称或将降低对华关税](https://so.toutiao.com/search?keyword=中方回应特朗普称或将降低对华关税)
+1. [金湘军辞去山西省省长职务](https://so.toutiao.com/search?keyword=金湘军辞去山西省省长职务)
+1. [中国扩大开放 持续加力提速](https://so.toutiao.com/search?keyword=中国扩大开放+持续加力提速)
+1. [孙颖莎回应刘国梁辞职](https://so.toutiao.com/search?keyword=孙颖莎回应刘国梁辞职)
+1. [特朗普为何没有收到中方的访华邀请](https://so.toutiao.com/search?keyword=特朗普为何没有收到中方的访华邀请)
+1. [白宫宣称与中国达成贸易协议进展顺利](https://so.toutiao.com/search?keyword=白宫宣称与中国达成贸易协议进展顺利)
+1. [刘国梁泪洒会场](https://so.toutiao.com/search?keyword=刘国梁泪洒会场)
+1. [撒贝宁疑拿走李书福的智能眼镜](https://so.toutiao.com/search?keyword=撒贝宁疑拿走李书福的智能眼镜)
+1. [淘宝不再主动介入售后申请](https://so.toutiao.com/search?keyword=淘宝不再主动介入售后申请)
+1. [新疆5A级景区门票全免？假的](https://so.toutiao.com/search?keyword=新疆5A级景区门票全免？假的)
+1. [刘国梁回应为何主动辞职](https://so.toutiao.com/search?keyword=刘国梁回应为何主动辞职)
+1. [大V：中美关税战特朗普输的一点不冤](https://so.toutiao.com/search?keyword=大V：中美关税战特朗普输的一点不冤)
+1. [李宁看全红婵像爷爷看孙女](https://so.toutiao.com/search?keyword=李宁看全红婵像爷爷看孙女)
+1. [刘国梁是任期最短的中国乒协主席](https://so.toutiao.com/search?keyword=刘国梁是任期最短的中国乒协主席)
+1. [马斯克：稀土管制影响擎天柱生产](https://so.toutiao.com/search?keyword=马斯克：稀土管制影响擎天柱生产)
+1. [母亲瞒着大儿子将118万给其余三子女](https://so.toutiao.com/search?keyword=母亲瞒着大儿子将118万给其余三子女)
+1. [刘国梁关联多家企业](https://so.toutiao.com/search?keyword=刘国梁关联多家企业)
+1. [“仅退款”为何落幕](https://so.toutiao.com/search?keyword=“仅退款”为何落幕)
+1. [伊能静：秦昊和钟楚曦好配](https://so.toutiao.com/search?keyword=伊能静：秦昊和钟楚曦好配)
+1. [王曼昱告别刘国梁](https://so.toutiao.com/search?keyword=王曼昱告别刘国梁)
+1. [现货黄金单价大跌200美元](https://so.toutiao.com/search?keyword=现货黄金单价大跌200美元)
+1. [30多艘海军现役舰艇一次看个够](https://so.toutiao.com/search?keyword=30多艘海军现役舰艇一次看个够)
+1. [媒体：董明珠“间谍言论”背离常识](https://so.toutiao.com/search?keyword=媒体：董明珠“间谍言论”背离常识)
+1. [全红婵说航天科技是误差消失术](https://so.toutiao.com/search?keyword=全红婵说航天科技是误差消失术)
+1. [特朗普承认对华关税过高](https://so.toutiao.com/search?keyword=特朗普承认对华关税过高)
+1. [红旗越野首发亮相](https://so.toutiao.com/search?keyword=红旗越野首发亮相)
+1. [马斯克称就稀土磁体正与中方合作](https://so.toutiao.com/search?keyword=马斯克称就稀土磁体正与中方合作)
+1. [中国周边四国为何被征最高3521%关税](https://so.toutiao.com/search?keyword=中国周边四国为何被征最高3521%关税)
+1. [奇瑞全新QQ概念车首发](https://so.toutiao.com/search?keyword=奇瑞全新QQ概念车首发)
+1. [长城发布新品牌logo](https://so.toutiao.com/search?keyword=长城发布新品牌logo)
+1. [专家：中美谈判美国已无牌可打](https://so.toutiao.com/search?keyword=专家：中美谈判美国已无牌可打)
+1. [孙俪新剧上海话说到过瘾](https://so.toutiao.com/search?keyword=孙俪新剧上海话说到过瘾)
+1. [全新雷克萨斯ES车展全球首发](https://so.toutiao.com/search?keyword=全新雷克萨斯ES车展全球首发)
+1. [美为何对柬太阳能产品征收3521%关税](https://so.toutiao.com/search?keyword=美为何对柬太阳能产品征收3521%关税)
+1. [男子给前面乱停车的大哥一巴掌](https://so.toutiao.com/search?keyword=男子给前面乱停车的大哥一巴掌)
+1. [菲律宾局势已到了不可控地步吗](https://so.toutiao.com/search?keyword=菲律宾局势已到了不可控地步吗)
+1. [日媒：特朗普上任前中国已早有预判](https://so.toutiao.com/search?keyword=日媒：特朗普上任前中国已早有预判)
+1. [为何各方接连否认美涉贸易谈判说法](https://so.toutiao.com/search?keyword=为何各方接连否认美涉贸易谈判说法)
+1. [中东土豪团现身上海车展买买买](https://so.toutiao.com/search?keyword=中东土豪团现身上海车展买买买)
+1. [学者：特朗普非正式“认输”](https://so.toutiao.com/search?keyword=学者：特朗普非正式“认输”)
+1. [媒体人：印度率先向特朗普投降](https://so.toutiao.com/search?keyword=媒体人：印度率先向特朗普投降)
+1. [刘涛红披风妈祖变装](https://so.toutiao.com/search?keyword=刘涛红披风妈祖变装)
+1. [特朗普对华态度缓和](https://so.toutiao.com/search?keyword=特朗普对华态度缓和)
+1. [上汽奥迪A5L Sportback亮相上海车展](https://so.toutiao.com/search?keyword=上汽奥迪A5L+Sportback亮相上海车展)
+1. [落马女副省长赵金云被开除公职](https://so.toutiao.com/search?keyword=落马女副省长赵金云被开除公职)
+1. [《蛮好的人生》垫底王业绩冲上第一](https://so.toutiao.com/search?keyword=《蛮好的人生》垫底王业绩冲上第一)
+1. [96岁老兵看到舰艇激动得说不出话](https://so.toutiao.com/search?keyword=96岁老兵看到舰艇激动得说不出话)
+1. [妈妈炸鸡块热油不慎从孩子头上洒下](https://so.toutiao.com/search?keyword=妈妈炸鸡块热油不慎从孩子头上洒下)
+1. [上海车展必看热门车汇总](https://so.toutiao.com/search?keyword=上海车展必看热门车汇总)
+1. [评论员：中国用开放破局贸易战](https://so.toutiao.com/search?keyword=评论员：中国用开放破局贸易战)
 1. [专家：“非核氢弹”有四大优势](https://so.toutiao.com/search?keyword=专家：“非核氢弹”有四大优势)
 1. [电商平台全面取消仅退款](https://so.toutiao.com/search?keyword=电商平台全面取消仅退款)
 1. [探寻“何以中国”的福建答案](https://so.toutiao.com/search?keyword=探寻“何以中国”的福建答案)
@@ -82,15 +132,22 @@
 ## 知乎热搜榜
 
 <!-- BEGIN ZHIHUSEARCH -->
-<!-- 最后更新时间 Wed Apr 23 2025 03:14:43 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Wed Apr 23 2025 21:28:24 GMT+0800 (China Standard Time) -->
+1. [黄金期货突破830元/克触发期权炒作](https://www.zhihu.com/search?q=黄金期货突破830元/克触发期权炒作)
+1. [樊振东还能回来吗](https://www.zhihu.com/search?q=樊振东还能回来吗)
+1. [活塞险胜尼克斯](https://www.zhihu.com/search?q=活塞险胜尼克斯)
+1. [雷霆战胜灰熊](https://www.zhihu.com/search?q=雷霆战胜灰熊)
+1. [什么台词让你记住了一整部游戏](https://www.zhihu.com/search?q=什么台词让你记住了一整部游戏)
+1. [16岁奥数天才坠楼去世](https://www.zhihu.com/search?q=16岁奥数天才坠楼去世)
+1. [爱马仕宣布在美国全线涨价](https://www.zhihu.com/search?q=爱马仕宣布在美国全线涨价)
+1. [中国被曝已不再生产出口美国的玩具](https://www.zhihu.com/search?q=中国被曝已不再生产出口美国的玩具)
+1. [北理工通报教师宫某涉嫌师德失范](https://www.zhihu.com/search?q=北理工通报教师宫某涉嫌师德失范)
+1. [京东美团外卖之争在争什么](https://www.zhihu.com/search?q=京东美团外卖之争在争什么)
 1. [金价再创新高](https://www.zhihu.com/search?q=金价再创新高)
 1. [王楚钦vs雨果](https://www.zhihu.com/search?q=王楚钦vs雨果)
-1. [活塞险胜尼克斯](https://www.zhihu.com/search?q=活塞险胜尼克斯)
 1. [日本米价暴涨](https://www.zhihu.com/search?q=日本米价暴涨)
 1. [皮亚斯特里夺冠](https://www.zhihu.com/search?q=皮亚斯特里夺冠)
-1. [16岁奥数天才坠楼去世](https://www.zhihu.com/search?q=16岁奥数天才坠楼去世)
 1. [韩国企业在美申请「饺子外观」专利获批](https://www.zhihu.com/search?q=韩国企业在美申请「饺子外观」专利获批)
-1. [爱马仕宣布在美国全线涨价](https://www.zhihu.com/search?q=爱马仕宣布在美国全线涨价)
 1. [黄河水不黄了](https://www.zhihu.com/search?q=黄河水不黄了)
 1. [中方把波音飞机退回美国](https://www.zhihu.com/search?q=中方把波音飞机退回美国)
 <!-- END ZHIHUSEARCH -->
@@ -100,7 +157,37 @@
 ## 知乎热门话题
 
 <!-- BEGIN ZHIHUQUESTIONS -->
-<!-- 最后更新时间 Wed Apr 23 2025 03:14:43 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Wed Apr 23 2025 21:28:24 GMT+0800 (China Standard Time) -->
+1. [中方回应特朗普承认对自中国进口商品的关税过高，美方此前称预计税率将大幅降低，预计降到多少双方都能满意？](https://www.zhihu.com/question/1898309261072757000)
+1. [洛阳文旅确认白马寺内为狄仁杰墓，有哪些文献或考古证据支持？为何外界仍有不同观点？](https://www.zhihu.com/question/1898300099563581700)
+1. [山东产出 2 米高番茄树，单株年产 6000 斤，这是怎么做到的？有可能推广种植吗？](https://www.zhihu.com/question/1897936876964372700)
+1. [刘国梁辞去中国乒协主席职务，王励勤当选新一任主席，高元义、马龙为副主席，将对中国乒乓球带来哪些影响？](https://www.zhihu.com/question/1898308852761458700)
+1. [我和先生都在 IT 行业，都已经 30+ 了，对未来十分迷茫，求大家帮忙指导一下之后的职业之路怎么走?](https://www.zhihu.com/question/12568355965)
+1. [为什么大众喜欢称马云为「马爸爸」，称雷军为「雷布斯」，而对刘强东的称呼则是「大强子」或「东子」？](https://www.zhihu.com/question/1898279638427480800)
+1. [王励勤当选新一任乒协主席，他可能会引领哪些变革？](https://www.zhihu.com/question/1898312376664678400)
+1. [5 旬辅警 30 余年前被人顶替上中专，经核查属实，此事具体情况如何？后续将如何处理？](https://www.zhihu.com/question/1898323551913752600)
+1. [特朗普突然改口，称「无意解雇鲍威尔 ，但美联储应该降低利率」，释放了什么信号？](https://www.zhihu.com/question/1898311243820951300)
+1. [极客湾高铁测试5G掉线86次，是4G的4倍，那么5G到底有什么用？](https://www.zhihu.com/question/1897746007296570600)
+1. [近年为什么再也没有类似《大宅门》《乔家大院》《大明王朝1566》《贞观之治》这种「字正腔圆」的剧了？](https://www.zhihu.com/question/1896961464666944000)
+1. [董明珠连任格力电器董事长，开启其第五个三年任期，董明珠是怎么连续 24 年维持对格力的实际影响力的？](https://www.zhihu.com/question/1898096293731075300)
+1. [中国围棋协会将不组队参加新一届 LG 杯世界棋王赛，原因有哪些？规则不统一对围棋发展影响有多大？](https://www.zhihu.com/question/1898326906291578400)
+1. [宁德时代发布钠离子电池「钠新」， 第一款产品今年6月量产，钠离子电池相较于现在锂电池有哪些优势？](https://www.zhihu.com/question/1897679035980538000)
+1. [你对《原神》5.6 版本前瞻特别节目「悖理」有哪些期待？](https://www.zhihu.com/question/1898379719365333500)
+1. [宫崎骏经典电影《幽灵公主》4K 修复版定档五一，你对这部作品有哪些印象？](https://www.zhihu.com/question/1898336420483035600)
+1. [为什么有的博物馆的玻璃一点也不反光？](https://www.zhihu.com/question/13401656081)
+1. [请问网文小说如何写出紧迫感和期待感呢？](https://www.zhihu.com/question/1897691215421502500)
+1. [董明珠称「绝不用海归派，只在国内高校里培养人才」，国内高校培养人才有哪些优势？能支撑格力发展的需要吗？](https://www.zhihu.com/question/1898336751686218500)
+1. [为什么人类不可以断臂再生？](https://www.zhihu.com/question/15377181189)
+1. [工作中找领导被嫌烦，不找又说没反馈，我到底怎么做啊？](https://www.zhihu.com/question/13592231935)
+1. [一人之下里面陆瑾可以救郑子布，为什么没有救他？](https://www.zhihu.com/question/12893644822)
+1. [Steam游戏平台的评价系统是否公平，平台是否应该介入评分？](https://www.zhihu.com/question/15365395984)
+1. [为何古代北方文明们都不喜欢朝热带扩张和迁移？](https://www.zhihu.com/question/1895804029671544300)
+1. [为什么年轻人开始逃离自律「陷阱」？明明知道早睡早起好，却越努力越焦虑？](https://www.zhihu.com/question/1897090715940548900)
+1. [如果罗伯特巴乔没有罚丢94年点球，那么他会成为第三个球王吗？](https://www.zhihu.com/question/302541769)
+1. [国产车的崛起给我们带来什么好处？](https://www.zhihu.com/question/620117759)
+1. [为什么汪曾祺的地位出奇的高？](https://www.zhihu.com/question/50695794)
+1. [成功人士谈经验常说「要感谢难为你的人」，可情感上要接受这点总感觉别扭，怎么理解和面对这种心理状态？](https://www.zhihu.com/question/1897526691292766700)
+1. [如果植物能发朋友圈，春天的蒲公英会写什么文案？](https://www.zhihu.com/question/1888635188168352500)
 1. [消息称电商平台将全面取消「仅退款」，这一调整对电商行业意味着什么？将如何影响商家和消费者？](https://www.zhihu.com/question/1898080865973662500)
 1. [日本首相称特朗普强硬要求日本进口美国大米和牛肉，日本政府会答应吗？若被迫接受会对日本经济带来哪些影响？](https://www.zhihu.com/question/1897991291586962200)
 1. [英伟达暂停供应 RTX 5090D 显卡，具体情况如何？可能会带来哪些影响？](https://www.zhihu.com/question/1897224478980809200)
@@ -138,7 +225,37 @@
 ## 知乎热门视频
 
 <!-- BEGIN ZHIHUVIDEO -->
-<!-- 最后更新时间 Wed Apr 23 2025 03:14:43 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Wed Apr 23 2025 21:28:24 GMT+0800 (China Standard Time) -->
+1. [中方回应特朗普承认对自中国进口商品的关税过高，美方此前称预计税率将大幅降低，预计降到多少双方都能满意？](https://www.zhihu.com/question/1898309261072756888)
+1. [洛阳文旅确认白马寺内为狄仁杰墓，有哪些文献或考古证据支持？为何外界仍有不同观点？](https://www.zhihu.com/question/1898300099563581740)
+1. [山东产出 2 米高番茄树，单株年产 6000 斤，这是怎么做到的？有可能推广种植吗？](https://www.zhihu.com/question/1897936876964372743)
+1. [刘国梁辞去中国乒协主席职务，王励勤当选新一任主席，高元义、马龙为副主席，将对中国乒乓球带来哪些影响？](https://www.zhihu.com/question/1898308852761458658)
+1. [我和先生都在 IT 行业，都已经 30+ 了，对未来十分迷茫，求大家帮忙指导一下之后的职业之路怎么走?](https://www.zhihu.com/question/12568355965)
+1. [为什么大众喜欢称马云为「马爸爸」，称雷军为「雷布斯」，而对刘强东的称呼则是「大强子」或「东子」？](https://www.zhihu.com/question/1898279638427480717)
+1. [王励勤当选新一任乒协主席，他可能会引领哪些变革？](https://www.zhihu.com/question/1898312376664678495)
+1. [5 旬辅警 30 余年前被人顶替上中专，经核查属实，此事具体情况如何？后续将如何处理？](https://www.zhihu.com/question/1898323551913752478)
+1. [特朗普突然改口，称「无意解雇鲍威尔 ，但美联储应该降低利率」，释放了什么信号？](https://www.zhihu.com/question/1898311243820951281)
+1. [极客湾高铁测试 5G 掉线 86 次，是 4G 的 4 倍，那么 5G 到底有什么用？](https://www.zhihu.com/question/1897746007296570602)
+1. [近年为什么再也没有类似《大宅门》《乔家大院》《大明王朝 1566》《贞观之治》这种「字正腔圆」的剧了？](https://www.zhihu.com/question/1896961464666943998)
+1. [董明珠连任格力电器董事长，开启其第五个三年任期，董明珠是怎么连续 24 年维持对格力的实际影响力的？](https://www.zhihu.com/question/1898096293731075439)
+1. [中国围棋协会将不组队参加新一届 LG 杯世界棋王赛，原因有哪些？规则不统一对围棋发展影响有多大？](https://www.zhihu.com/question/1898326906291578465)
+1. [宁德时代发布钠离子电池「钠新」， 第一款产品今年 6 月量产，钠离子电池相较于现在锂电池有哪些优势？](https://www.zhihu.com/question/1897679035980538072)
+1. [你对《原神》5.6 版本前瞻特别节目「悖理」有哪些期待？](https://www.zhihu.com/question/1898379719365333406)
+1. [宫崎骏经典电影《幽灵公主》4K 修复版定档五一，你对这部作品有哪些印象？](https://www.zhihu.com/question/1898336420483035716)
+1. [为什么有的博物馆的玻璃一点也不反光？](https://www.zhihu.com/question/13401656081)
+1. [请问网文小说如何写出紧迫感和期待感呢？](https://www.zhihu.com/question/1897691215421502589)
+1. [董明珠称「绝不用海归派，只在国内高校里培养人才」，国内高校培养人才有哪些优势？能支撑格力发展的需要吗？](https://www.zhihu.com/question/1898336751686218417)
+1. [为什么人类不可以断臂再生？](https://www.zhihu.com/question/15377181189)
+1. [工作中找领导被嫌烦，不找又说没反馈，我到底怎么做啊？](https://www.zhihu.com/question/13592231935)
+1. [一人之下里面陆瑾可以救郑子布，为什么没有救他？](https://www.zhihu.com/question/12893644822)
+1. [Steam 游戏平台的评价系统是否公平，平台是否应该介入评分？](https://www.zhihu.com/question/15365395984)
+1. [为何古代北方文明们都不喜欢朝热带扩张和迁移？](https://www.zhihu.com/question/1895804029671544217)
+1. [为什么年轻人开始逃离自律「陷阱」？明明知道早睡早起好，却越努力越焦虑？](https://www.zhihu.com/question/1897090715940548831)
+1. [如果罗伯特巴乔没有罚丢 94 年点球，那么他会成为第三个球王吗？](https://www.zhihu.com/question/302541769)
+1. [国产车的崛起给我们带来什么好处？](https://www.zhihu.com/question/620117759)
+1. [为什么汪曾祺的地位出奇的高？](https://www.zhihu.com/question/50695794)
+1. [成功人士谈经验常说「要感谢难为你的人」，可情感上要接受这点总感觉别扭，怎么理解和面对这种心理状态？](https://www.zhihu.com/question/1897526691292766707)
+1. [如果植物能发朋友圈，春天的蒲公英会写什么文案？](https://www.zhihu.com/question/1888635188168352619)
 1. [消息称电商平台将全面取消「仅退款」，这一调整对电商行业意味着什么？将如何影响商家和消费者？](https://www.zhihu.com/question/1898080865973662583)
 1. [日本首相称特朗普强硬要求日本进口美国大米和牛肉，日本政府会答应吗？若被迫接受会对日本经济带来哪些影响？](https://www.zhihu.com/question/1897991291586962197)
 1. [英伟达暂停供应 RTX 5090D 显卡，具体情况如何？可能会带来哪些影响？](https://www.zhihu.com/question/1897224478980809260)
@@ -176,7 +293,7 @@
 ## 微博热搜
 
 <!-- BEGIN WEIBO -->
-<!-- 最后更新时间 Wed Apr 23 2025 03:14:43 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Wed Apr 23 2025 21:28:24 GMT+0800 (China Standard Time) -->
 
 <!-- END WEIBO -->
 
