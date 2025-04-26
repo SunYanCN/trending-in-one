@@ -24,7 +24,57 @@
 ## 今日头条热搜
 
 <!-- BEGIN TOUTIAO -->
-<!-- 最后更新时间 Sat Apr 26 2025 03:14:46 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Sat Apr 26 2025 19:13:28 GMT+0800 (China Standard Time) -->
+1. [俄方称已收复库尔斯克州](https://so.toutiao.com/search?keyword=俄方称已收复库尔斯克州)
+1. [印度威胁切断水源 巴基斯坦赢面多大](https://so.toutiao.com/search?keyword=印度威胁切断水源+巴基斯坦赢面多大)
+1. [制造业迈向“智造”新台阶](https://so.toutiao.com/search?keyword=制造业迈向“智造”新台阶)
+1. [解放军越南彩排引发追星效果](https://so.toutiao.com/search?keyword=解放军越南彩排引发追星效果)
+1. [蔡正元回应戴脚镣后是否还会上节目](https://so.toutiao.com/search?keyword=蔡正元回应戴脚镣后是否还会上节目)
+1. [台退将称克什米尔恐袭时间点很巧妙](https://so.toutiao.com/search?keyword=台退将称克什米尔恐袭时间点很巧妙)
+1. [媒体评男子因痛爱亡妻殉情](https://so.toutiao.com/search?keyword=媒体评男子因痛爱亡妻殉情)
+1. [儿子带女同学回家吃饭爸爸热情招待](https://so.toutiao.com/search?keyword=儿子带女同学回家吃饭爸爸热情招待)
+1. [巴基斯坦部队向克什米尔大规模调动](https://so.toutiao.com/search?keyword=巴基斯坦部队向克什米尔大规模调动)
+1. [短信提示社保异常需办登记认证？假](https://so.toutiao.com/search?keyword=短信提示社保异常需办登记认证？假)
+1. [天主教教皇方济各葬礼](https://so.toutiao.com/search?keyword=天主教教皇方济各葬礼)
+1. [台民众冒雨走上街头抗议赖清德当局](https://so.toutiao.com/search?keyword=台民众冒雨走上街头抗议赖清德当局)
+1. [中将被炸死后俄方启动刑事调查](https://so.toutiao.com/search?keyword=中将被炸死后俄方启动刑事调查)
+1. [《新闻联播》正在直播](https://so.toutiao.com/search?keyword=《新闻联播》正在直播)
+1. [殉情男子离世前将妻子遗物成箱送回](https://so.toutiao.com/search?keyword=殉情男子离世前将妻子遗物成箱送回)
+1. [台名嘴自曝被戴电子脚镣不能出境](https://so.toutiao.com/search?keyword=台名嘴自曝被戴电子脚镣不能出境)
+1. [京东外卖辟谣百亿补贴商家承担50%](https://so.toutiao.com/search?keyword=京东外卖辟谣百亿补贴商家承担50%)
+1. [小米SU7高速狂飙至230km/h](https://so.toutiao.com/search?keyword=小米SU7高速狂飙至230km/h)
+1. [俄中将遇袭身亡 俄美罕见同时发声](https://so.toutiao.com/search?keyword=俄中将遇袭身亡+俄美罕见同时发声)
+1. [印发起“水战争” 巴基斯坦能打赢吗](https://so.toutiao.com/search?keyword=印发起“水战争”+巴基斯坦能打赢吗)
+1. [马斯克不到100天砍掉自己1500亿身家](https://so.toutiao.com/search?keyword=马斯克不到100天砍掉自己1500亿身家)
+1. [48岁妈妈怀孕7个月才发现](https://so.toutiao.com/search?keyword=48岁妈妈怀孕7个月才发现)
+1. [印巴局势恶化 中方会出面调停吗](https://so.toutiao.com/search?keyword=印巴局势恶化+中方会出面调停吗)
+1. [詹姆斯谈被打13-1](https://so.toutiao.com/search?keyword=詹姆斯谈被打13-1)
+1. [大V：特朗普被中国逼得开始讲道理](https://so.toutiao.com/search?keyword=大V：特朗普被中国逼得开始讲道理)
+1. [解放军仪仗司礼大队亮相越南](https://so.toutiao.com/search?keyword=解放军仪仗司礼大队亮相越南)
+1. [男子中800万后赌博败光5套房](https://so.toutiao.com/search?keyword=男子中800万后赌博败光5套房)
+1. [湖南张家界：黄石寨云海宛如仙境](https://so.toutiao.com/search?keyword=湖南张家界：黄石寨云海宛如仙境)
+1. [县城贵妇疯抢“剁椒鱼头车”](https://so.toutiao.com/search?keyword=县城贵妇疯抢“剁椒鱼头车”)
+1. [美媒再曝美对华作战简报被叫停内幕](https://so.toutiao.com/search?keyword=美媒再曝美对华作战简报被叫停内幕)
+1. [孙俪吐槽邓超五哈斗舞很自信](https://so.toutiao.com/search?keyword=孙俪吐槽邓超五哈斗舞很自信)
+1. [张柏芝说爱情排在远得看不见的地方](https://so.toutiao.com/search?keyword=张柏芝说爱情排在远得看不见的地方)
+1. [中央政治局会议释楼市新信号](https://so.toutiao.com/search?keyword=中央政治局会议释楼市新信号)
+1. [大V：印巴局势升级绝非偶然](https://so.toutiao.com/search?keyword=大V：印巴局势升级绝非偶然)
+1. [美国对7种中重稀土精炼能力为0](https://so.toutiao.com/search?keyword=美国对7种中重稀土精炼能力为0)
+1. [国乒队员于子洋张蔷举办婚礼](https://so.toutiao.com/search?keyword=国乒队员于子洋张蔷举办婚礼)
+1. [歼-10CE若迎首战 印方能否顶得住](https://so.toutiao.com/search?keyword=歼-10CE若迎首战+印方能否顶得住)
+1. [金正恩出席人民军驱逐舰入水仪式](https://so.toutiao.com/search?keyword=金正恩出席人民军驱逐舰入水仪式)
+1. [侃爷称不应该和金·卡戴珊生孩子](https://so.toutiao.com/search?keyword=侃爷称不应该和金·卡戴珊生孩子)
+1. [官方回应业主家阳台被认定安全出口](https://so.toutiao.com/search?keyword=官方回应业主家阳台被认定安全出口)
+1. [歼-10C和阵风战机孰强孰弱](https://so.toutiao.com/search?keyword=歼-10C和阵风战机孰强孰弱)
+1. [台老人痛骂“台独”分子可恶透顶](https://so.toutiao.com/search?keyword=台老人痛骂“台独”分子可恶透顶)
+1. [8旬老人无人赡养起诉2儿1女](https://so.toutiao.com/search?keyword=8旬老人无人赡养起诉2儿1女)
+1. [孙俪新剧狂飙上海话](https://so.toutiao.com/search?keyword=孙俪新剧狂飙上海话)
+1. [网友劝36岁女子不要为结婚而结婚](https://so.toutiao.com/search?keyword=网友劝36岁女子不要为结婚而结婚)
+1. [英法美等多国领导人出席教皇葬礼](https://so.toutiao.com/search?keyword=英法美等多国领导人出席教皇葬礼)
+1. [女子不听朋友提醒被骗12万元](https://so.toutiao.com/search?keyword=女子不听朋友提醒被骗12万元)
+1. [中国智造又给谁上了一课](https://so.toutiao.com/search?keyword=中国智造又给谁上了一课)
+1. [詹姆斯：东契奇生病是重大打击](https://so.toutiao.com/search?keyword=詹姆斯：东契奇生病是重大打击)
+1. [女子信男友有千万存款被骗12万](https://so.toutiao.com/search?keyword=女子信男友有千万存款被骗12万)
 1. [印巴关系为何再度恶化](https://so.toutiao.com/search?keyword=印巴关系为何再度恶化)
 1. [太原“美人鱼”表演者表演时疑溺水](https://so.toutiao.com/search?keyword=太原“美人鱼”表演者表演时疑溺水)
 1. [一季度引资成绩单里的形与势](https://so.toutiao.com/search?keyword=一季度引资成绩单里的形与势)
@@ -48,7 +98,6 @@
 1. [谢霆锋演唱会含泪唱与王菲定情曲](https://so.toutiao.com/search?keyword=谢霆锋演唱会含泪唱与王菲定情曲)
 1. [黄金还能涨多久](https://so.toutiao.com/search?keyword=黄金还能涨多久)
 1. [巴称若印切断河流将被视为战争行为](https://so.toutiao.com/search?keyword=巴称若印切断河流将被视为战争行为)
-1. [京东外卖辟谣百亿补贴商家承担50%](https://so.toutiao.com/search?keyword=京东外卖辟谣百亿补贴商家承担50%)
 1. [副部级宋朝华被查](https://so.toutiao.com/search?keyword=副部级宋朝华被查)
 1. [牛弹琴：印巴又到了战争的边缘](https://so.toutiao.com/search?keyword=牛弹琴：印巴又到了战争的边缘)
 1. [大V：印巴都是核国家没法大战](https://so.toutiao.com/search?keyword=大V：印巴都是核国家没法大战)
@@ -82,17 +131,21 @@
 ## 知乎热搜榜
 
 <!-- BEGIN ZHIHUSEARCH -->
-<!-- 最后更新时间 Sat Apr 26 2025 03:14:46 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Sat Apr 26 2025 19:13:28 GMT+0800 (China Standard Time) -->
 1. [今日辟谣](https://www.zhihu.com/search?q=今日辟谣)
 1. [你捡过最大的漏是什么](https://www.zhihu.com/search?q=你捡过最大的漏是什么)
-1. [金价下跌](https://www.zhihu.com/search?q=金价下跌)
 1. [樊振东还能回来吗](https://www.zhihu.com/search?q=樊振东还能回来吗)
-1. [雷霆战胜灰熊](https://www.zhihu.com/search?q=雷霆战胜灰熊)
 1. [什么台词让你记住了一整部游戏](https://www.zhihu.com/search?q=什么台词让你记住了一整部游戏)
 1. [卤鹅哥成立食品科技公司](https://www.zhihu.com/search?q=卤鹅哥成立食品科技公司)
+1. [为什么中国现在敢和美国硬刚了](https://www.zhihu.com/search?q=为什么中国现在敢和美国硬刚了)
+1. [知乎旧物节](https://www.zhihu.com/search?q=知乎旧物节)
+1. [寻找穿越时光的旧物](https://www.zhihu.com/search?q=寻找穿越时光的旧物)
+1. [哪件旧物是你一直保留着的](https://www.zhihu.com/search?q=哪件旧物是你一直保留着的)
+1. [穿越时光的旧物](https://www.zhihu.com/search?q=穿越时光的旧物)
+1. [金价下跌](https://www.zhihu.com/search?q=金价下跌)
+1. [雷霆战胜灰熊](https://www.zhihu.com/search?q=雷霆战胜灰熊)
 1. [中国被曝已不再生产出口美国的玩具](https://www.zhihu.com/search?q=中国被曝已不再生产出口美国的玩具)
 1. [76 岁老人搭建 1200 平无钉木楼](https://www.zhihu.com/search?q=76 岁老人搭建 1200 平无钉木楼)
-1. [为什么中国现在敢和美国硬刚了](https://www.zhihu.com/search?q=为什么中国现在敢和美国硬刚了)
 <!-- END ZHIHUSEARCH -->
 
 历史归档 [./archives/zhihu-search](./archives/zhihu-search)
@@ -100,7 +153,37 @@
 ## 知乎热门话题
 
 <!-- BEGIN ZHIHUQUESTIONS -->
-<!-- 最后更新时间 Sat Apr 26 2025 03:14:46 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Sat Apr 26 2025 19:13:28 GMT+0800 (China Standard Time) -->
+1. [饿了么宣布将逐步取消外卖超时扣罚，会让消费者体验变差吗？其他外卖平台会跟进吗？](https://www.zhihu.com/question/1899228774433781200)
+1. [金扫帚奖揭晓，陆川《749 局》横扫奖项，包贝尔获影帝，如何看待这一奖项？对导演及演员有何实际影响？](https://www.zhihu.com/question/1899104401064437000)
+1. [《大明王朝 1566》中，嘉靖为什么突然因为别人叫吕芳「老祖宗」而大发雷霆？](https://www.zhihu.com/question/274890065)
+1. [去年我国信用卡「缩水」4000万张，你「销卡」了吗？如何解读这一趋势？](https://www.zhihu.com/question/1899041693380080600)
+1. [如何看待「剧组是一群没文化的人在干有文化的事」？](https://www.zhihu.com/question/1898017529198273800)
+1. [福柯的研究方法是什么？](https://www.zhihu.com/question/576269236)
+1. [专家称木筷易生细菌，建议 3-6 个月更换，木筷上的细菌会对身体造成哪些危害？换成别的材质会更好吗？](https://www.zhihu.com/question/1898334720418345500)
+1. [广东、浙江、山西等地宣布发钱奖励结婚，会产生哪些影响？这一政策值得推广吗？](https://www.zhihu.com/question/1899434033563263500)
+1. [《葬送的芙莉莲》动画中芙莉莲的战斗力怎么样？](https://www.zhihu.com/question/629118407)
+1. [24-25赛季NBA季后赛湖人 104:116 森林狼，如何评价这场比赛？](https://www.zhihu.com/question/1899401981778457000)
+1. [有哪些是你到了低谷才明白的道理?](https://www.zhihu.com/question/605855926)
+1. [为什么南方有“鱼米之乡”的说法，北方却没有“肉面之乡”的说法？](https://www.zhihu.com/question/438466454)
+1. [普惠托育机构 100 个托位只招到 17 个娃，为什么普惠了家长却「不敢托」？入托难的痛点到底是啥？](https://www.zhihu.com/question/1897692496974291700)
+1. [东方不败为什么杀童百熊毫不留情？](https://www.zhihu.com/question/805073774)
+1. [如何评价《崩坏：星穹铁道》二周年特别动画：「不虚此行」？](https://www.zhihu.com/question/1899444973750969900)
+1. [绍伊古称俄罗斯愿恢复与美方对话，但不会只相信美方言辞，而是会看其行动，如何看待这一表态？释放什么信号？](https://www.zhihu.com/question/1898864355182882800)
+1. [日本大爷坠入坑中 3 个月仍未获救，预计 5 月中旬后才搜救，救援为何这么难？日本的救援能力究竟如何？](https://www.zhihu.com/question/1899415383288538400)
+1. [周围见过好几个家庭让女儿从小学舞蹈，请问这种选择真的合适吗？利大于弊还是弊大于利？](https://www.zhihu.com/question/15572969148)
+1. [感觉墨镜日常使用频率真的挺低，有什么其他的替代产品吗？](https://www.zhihu.com/question/1892524742956807400)
+1. [《2024 青少年心理健康与学业状况调查报告》发布，如何看待「师生关系好的青少年抑郁风险更低」等结论？](https://www.zhihu.com/question/1897927325946983000)
+1. [研究发现 CT 扫描或与 5% 新发癌症相关，CT 检查存在哪些风险？哪些病不用着急做 CT？](https://www.zhihu.com/question/1897614167868924400)
+1. [1 岁宝宝被家人狂亲，出现高烧不退等症状，感染 EB 病毒，什么是 EB 病毒？有哪些行为家长应避免？](https://www.zhihu.com/question/1897632800481436000)
+1. [人类为什么要进化出这么长的睡眠时间？](https://www.zhihu.com/question/1896726316402840800)
+1. [普通人学拳击有没有实战作用？](https://www.zhihu.com/question/1894558562346321000)
+1. [中国取消 1.2 万吨美国猪肉订单，并大幅减少大豆采购，这一举动会对美国农贸市场造成多大冲击？](https://www.zhihu.com/question/1899175003544617500)
+1. [《水饺皇后》首映礼你去看了吗？看过后你觉得这部电影如何？](https://www.zhihu.com/question/1899055020269371400)
+1. [如何评价《忍者与杀手二人组的日常生活》?](https://www.zhihu.com/question/1894191504798486800)
+1. [张继科称正手好的人有可能登顶，正强反弱有可能登顶，反强正弱不可能，这种说法是真的吗？](https://www.zhihu.com/question/1897703649792202200)
+1. [猪每天吃的是糠，为什么还能长这么肥？](https://www.zhihu.com/question/1892252106003562800)
+1. [父母该如何教育自己的孩子早点适应这个社会的生存能力，具体该怎么做？](https://www.zhihu.com/question/15137269194)
 1. [中共中央政治局召开会议，强调适时降准降息，提高中低收入群体收入，大力发展服务消费，释放了什么信号？](https://www.zhihu.com/question/1899099045215045400)
 1. [顾客买鱼要求不宰杀遭商贩扔秤砣，商贩被行拘 12 天，怎样从法律角度解读？如何才能杜绝缺斤短两的现象？](https://www.zhihu.com/question/1898703982794352600)
 1. [小伙取名「朱雀玄武敕令」，申请改名「周天紫薇大帝」遭驳回，如何从法律上解读？有哪些约定俗成的起名规定？](https://www.zhihu.com/question/1899124986742043100)
@@ -138,7 +221,39 @@
 ## 知乎热门视频
 
 <!-- BEGIN ZHIHUVIDEO -->
-<!-- 最后更新时间 Sat Apr 26 2025 03:14:46 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Sat Apr 26 2025 19:13:28 GMT+0800 (China Standard Time) -->
+1. [饿了么宣布将逐步取消外卖超时扣罚，会让消费者体验变差吗？其他外卖平台会跟进吗？](https://www.zhihu.com/question/1899228774433781373)
+1. [金扫帚奖揭晓，陆川《749 局》横扫奖项，包贝尔获影帝，如何看待这一奖项？对导演及演员有何实际影响？](https://www.zhihu.com/question/1899104401064436977)
+1. [《大明王朝 1566》中，嘉靖为什么突然因为别人叫吕芳「老祖宗」而大发雷霆？](https://www.zhihu.com/question/274890065)
+1. [去年我国信用卡「缩水」4000 万张，你「销卡」了吗？如何解读这一趋势？](https://www.zhihu.com/question/1899041693380080715)
+1. [如何看待「剧组是一群没文化的人在干有文化的事」这种观点？
+
+](https://www.zhihu.com/question/1898017529198273792)
+1. [福柯的研究方法是什么？](https://www.zhihu.com/question/576269236)
+1. [专家称木筷易生细菌，建议 3-6 个月更换，木筷上的细菌会对身体造成哪些危害？换成别的材质会更好吗？](https://www.zhihu.com/question/1898334720418345384)
+1. [广东、浙江、山西等地宣布发钱奖励结婚，会产生哪些影响？这一政策值得推广吗？](https://www.zhihu.com/question/1899434033563263452)
+1. [《葬送的芙莉莲》动画中芙莉莲的战斗力怎么样？](https://www.zhihu.com/question/629118407)
+1. [24-25 赛季 NBA 季后赛湖人 104:116 森林狼，如何评价这场比赛？](https://www.zhihu.com/question/1899401981778457087)
+1. [有哪些是你到了低谷才明白的道理?](https://www.zhihu.com/question/605855926)
+1. [为什么南方有「鱼米之乡」的说法，北方却没有「肉面之乡」的说法？](https://www.zhihu.com/question/438466454)
+1. [普惠托育机构 100 个托位只招到 17 个娃，为什么普惠了家长却「不敢托」？入托难的痛点到底是啥？](https://www.zhihu.com/question/1897692496974291832)
+1. [东方不败为什么杀童百熊毫不留情？](https://www.zhihu.com/question/805073774)
+1. [如何评价《崩坏：星穹铁道》二周年特别动画：「不虚此行」？](https://www.zhihu.com/question/1899444973750969848)
+1. [绍伊古称俄罗斯愿恢复与美方对话，但不会只相信美方言辞，而是会看其行动，如何看待这一表态？释放什么信号？](https://www.zhihu.com/question/1898864355182882820)
+1. [日本大爷坠入坑中 3 个月仍未获救，预计 5 月中旬后才搜救，救援为何这么难？日本的救援能力究竟如何？](https://www.zhihu.com/question/1899415383288538325)
+1. [周围见过好几个家庭让女儿从小学舞蹈，请问这种选择真的合适吗？利大于弊还是弊大于利？](https://www.zhihu.com/question/15572969148)
+1. [感觉墨镜日常使用频率真的挺低，有什么其他的替代产品吗？](https://www.zhihu.com/question/1892524742956807521)
+1. [《2024 青少年心理健康与学业状况调查报告》发布，如何看待「师生关系好的青少年抑郁风险更低」等结论？](https://www.zhihu.com/question/1897927325946982907)
+1. [研究发现 CT 扫描或与 5% 新发癌症相关，CT 检查存在哪些风险？哪些病不用着急做 CT？](https://www.zhihu.com/question/1897614167868924371)
+1. [1 岁宝宝被家人狂亲，出现高烧不退等症状，感染 EB 病毒，什么是 EB 病毒？有哪些行为家长应避免？](https://www.zhihu.com/question/1897632800481435984)
+1. [人类为什么要进化出这么长的睡眠时间？](https://www.zhihu.com/question/1896726316402840869)
+1. [普通人学拳击有没有实战作用？](https://www.zhihu.com/question/1894558562346320979)
+1. [中国取消 1.2 万吨美国猪肉订单，并大幅减少大豆采购，这一举动会对美国农贸市场造成多大冲击？](https://www.zhihu.com/question/1899175003544617487)
+1. [《水饺皇后》首映礼你去看了吗？看过后你觉得这部电影如何？](https://www.zhihu.com/question/1899055020269371397)
+1. [如何评价《忍者与杀手二人组的日常生活》?](https://www.zhihu.com/question/1894191504798486748)
+1. [张继科称正手好的人有可能登顶，正强反弱有可能登顶，反强正弱不可能，这种说法是真的吗？](https://www.zhihu.com/question/1897703649792202133)
+1. [猪每天吃的是糠，为什么还能长这么肥？](https://www.zhihu.com/question/1892252106003562753)
+1. [父母该如何教育自己的孩子早点适应这个社会的生存能力，具体该怎么做？](https://www.zhihu.com/question/15137269194)
 1. [中共中央政治局召开会议，强调适时降准降息，提高中低收入群体收入，大力发展服务消费，释放了什么信号？](https://www.zhihu.com/question/1899099045215045256)
 1. [顾客买鱼要求不宰杀遭商贩扔秤砣，商贩被行拘 12 天，怎样从法律角度解读？如何才能杜绝缺斤短两的现象？](https://www.zhihu.com/question/1898703982794352552)
 1. [小伙取名「朱雀玄武敕令」，申请改名「周天紫薇大帝」遭驳回，如何从法律上解读？有哪些约定俗成的起名规定？](https://www.zhihu.com/question/1899124986742043238)
@@ -176,7 +291,7 @@
 ## 微博热搜
 
 <!-- BEGIN WEIBO -->
-<!-- 最后更新时间 Sat Apr 26 2025 03:14:46 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Sat Apr 26 2025 19:13:28 GMT+0800 (China Standard Time) -->
 
 <!-- END WEIBO -->
 
